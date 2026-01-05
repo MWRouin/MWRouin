@@ -1,3 +1,3 @@
 # Welcome to my profile 😊
 
-[✅ check my profile](https://mwrouin.github.io)
+[✅ Check my website](https://mwrouin.github.io)
